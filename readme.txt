@@ -1,2 +1,6 @@
-hello
-you are bad
+dfafafa
+ad
+ag
+a
+ga
+g
